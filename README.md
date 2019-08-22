@@ -4,4 +4,3 @@ As u see,i am a good boy who is very handsome.I hope i can see u soon at a short
 what do u wanna say?
 marry me ? okay? 
 dont say no.
-fdafasdfa
